@@ -1,1 +1,0 @@
-# inimak.github.io
